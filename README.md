@@ -4,7 +4,7 @@ Oieee👋, eu sou ✨ Joyce Gabriela ✨, atualmente estudante de Análise e Des
 
 🌱 Atualmente estou aprendendo lógica de programação e me aventurnado nesse novo mundo 🌎
 
-🤔 Estou procurando ajuda em lógica de programação e tudo que abrange toda esse mundo ✨
+🤔 Estou procurando ajuda em lógica de programação,networking e tudo que abrange toda esse mundo ✨
 
 📫 Como me encontrar: joyce-gabi1313@hotmail.com
 
