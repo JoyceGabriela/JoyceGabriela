@@ -1,14 +1,14 @@
 Oieee👋, eu sou ✨ Joyce Gabriela ✨, atualmente estudante de Análise e Desenvolvimento de Sistemas.
 
-🔭 Atualmente trabalho na área do processamneto
+• 🔭 Atualmente trabalho na área do processamneto
 
-🌱 Atualmente estou aprendendo lógica de programação e me aventurnado nesse novo mundo 🌎
+• 🌱 Atualmente estou aprendendo lógica de programação e me aventurnado nesse novo mundo 🌎
 
-🤔 Estou procurando ajuda em lógica de programação,networking e tudo que abrange toda esse mundo ✨
+• 🤔 Estou procurando ajuda em lógica de programação,networking e tudo que abrange toda esse mundo ✨
 
-📫 Como me encontrar: joyce-gabi1313@hotmail.com
+• 📫 Como me encontrar: joyce-gabi1313@hotmail.com
 
-😄 Prónomes: ela/ela
+• 😄 Prónomes: ela/ela
 
-⚡ Curiosidade: sempre insisto naquilo em que acredito
+•⚡ Curiosidade: sempre insisto naquilo em que acredito
 
