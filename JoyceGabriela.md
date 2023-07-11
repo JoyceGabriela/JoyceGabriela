@@ -11,7 +11,3 @@ Oieee👋, eu sou ✨ Joyce Gabriela ✨, atualmente estudante de Análise e Des
 • 😄 Prónomes: ela/ela
 
 •⚡ Curiosidade: sempre insisto naquilo em que acredito
-
-
-
-Faalb-Js Faalb-HTML Faalb-CSS Faalb-Python
